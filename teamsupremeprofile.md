@@ -52,11 +52,11 @@ This shows that I like to get things done in a concise manner and have a clear p
 
 Based on this test, it advises that I am a 40% auditory learner. I believe that this is true as it is easier for me to memorise work by listening to the explanation. I also benefit from Visual learning as it visualising the process also helps me memorise the work.
 
-***The Myers-Brigg Test***
+**The Myers-Brigg Test**
 
 The above test indicates that I am organised, responsible, efficient and value experience. I believe that this is true as I like to plan ahead to ensure that I know what I am doing or to prepare enough time to learn the things i need to know before completing my task. I do believe that gaining experience can benefit anyone in any part of their daily life whether it is work, your social life or your private life.
 
-***The Aptitude Test***
+**The Aptitude Test**
 
 The results of the aptitude/psychometric test show that I am able to read through verbal data, identify critical issues and reach logical conclusions. The test compares your results with those who have also taken it who have a score of 7 or more place you in a higher position compared to the average person's result.
 
