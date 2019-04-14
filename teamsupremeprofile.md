@@ -48,7 +48,7 @@ This shows that I like to get things done in a concise manner and have a clear p
 
 **Vu Tran's test outcomes:**
 
-***The Learning Style Test***
+**The Learning Style Test**
 
 Based on this test, it advises that I am a 40% auditory learner. I believe that this is true as it is easier for me to memorise work by listening to the explanation. I also benefit from Visual learning as it visualising the process also helps me memorise the work.
 
